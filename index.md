@@ -5,6 +5,8 @@ The animals go far away because is very cold.
 Only very hairy animals can live in UK mountains.
 but bald ones can live in the lowlands.
 
-Nagore is not here.
+Nagore is not here. 
+
+neither is Craig.
 
 
